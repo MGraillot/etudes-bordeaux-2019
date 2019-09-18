@@ -35,6 +35,7 @@ entrée offerte au théatro 1 fois par mois vestiaire compris. :+1:
 * Miroir d'eau: arrêt de tram "place de la bourse"
 * The base club: 287 Boulevard Alfred Daney, 33300 Bordeaux
 
+* Le Cochon Volant : 33 place des Capucins
 
 #### Les sports 
 
